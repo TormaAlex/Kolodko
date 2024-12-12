@@ -1,0 +1,3 @@
+# Skála kópé
+![](https://github.com/TormaAlex/Kolodko/blob/main/43d60763-a94c-419a-b042-9a7b68e49242.jpg?raw=true)
+Minden idők egyik legkedvesebb, legszellemesebb reklámja volt a 80-as évek cingár lábú, gyufakezű kiskópéja, a Skála Kópé, aki ha bemegy, kijön, s akinek reklámja a Skála-Coopé, de szíve mindig a vásárlóké. Az Y, Z és alfa generációknak azonban már mit sem mond a dalban élő szimpatikus reklámfigura, azóta se Skála-Coop, se Skála Kópé nincsen, vagy már csak a közelmúlt történelmében, jókor kapta hát el egyik legnépszerűbb szobrászművészünk, Kolodko Mihály a pillanatot, hogy a kis nyughatatlant a Nyugati téren, ahol az egykori Skála Metro áruház állt, vonalkód mintájú nyugszékre ültesse.
