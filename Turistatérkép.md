@@ -9,7 +9,7 @@ A 19. században a Duna bal partján fekvő Pest gyorsan fejlődni kezdett a pol
 # Parlament épülete
 ![](https://github.com/TormaAlex/Kolodko/blob/main/7d595669-c485-49ea-a648-43387d49a9b9.jpg?raw=true)
 Az Országház Budapest egyik legismertebb középülete, a Magyar Országgyűlés és egyes intézményeinek (például az Országgyűlési Könyvtár) székhelye. Budapest V. kerületében, a Duna bal partján, a Kossuth Lajos téren található. Bár az épületre vonatkozóan a népnyelvben a Parlament elnevezés is elterjedt, ez eredetileg az ott ülésező testület, az Országgyűlés idegen eredetű, nem hivatalos megnevezése, amelyet a köznyelv névátvitellel magára az épületre is kiterjesztett.
-# Erzsébet-híd
+# Szabadság híd
 ![](https://github.com/TormaAlex/Kolodko/blob/main/d0b49360-cd32-4428-a2ee-c3f881e45ae0.jpg?raw=true)
 Helyreállítására a budapesti Duna-hidak közül utolsóként került volna sor. Sok vitát szült, hogy érdemes-e helyreállítani a régi hidat a régi helyen, vagy esetleg egy teljesen új hidat építsenek más vonalvezetéssel, végül Sávoly Pál modern külsejű, de az eredeti pilléreket hasznosító terve alapján, 1961 és 1964 között történt meg az újjáépítés. 
 # Gellért-hegy a Szent Gellért szoborral
